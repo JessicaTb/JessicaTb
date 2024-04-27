@@ -18,7 +18,7 @@
 </div>
 
 Formada em Técnico de Segurança no Trabalho.<br> 
-Tenho interesse na área de psicologia e no comportamento humano<br>
+Atualmente fazendo um curso no SENAI - SP- sobre: Criação de Sites e Plataformas Digitais<br>
 
   ## 
   Entre em Contato:
